@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Nadakaradan
-- CEO of Snailtoon ~ a space to create,Buy & sell art works (ig:@snailt00n)
+- CEO of Snailtoon ~ a space to create,Buy & sell art works ( https://www.instagram.com/nadakaradan?igsh=MTA4NGdjMXdjcW05bw== )
 - 👀 interested in Designing
 - 🌱 currently seeking Degree in Multimedia and Mass Communication
 - Passionate versatile entreprenur ✨
